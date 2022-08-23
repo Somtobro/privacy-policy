@@ -1,7 +1,7 @@
-Privacy Policy
+Privacy Policy for 2sure JAMB app
 
-About JAMB CBT PRACTICE APP OFFLINE:
-JAMB CBT PRACTICE APP OFFLINE is an offline information portal designed for students, graduates and interested individual of various schools.
+About 2sure JAMB CBT PRACTICE APP OFFLINE:
+JAMB CBT PRACTICE APP OFFLINE is an offline exam simulator designed for students, graduates and interested individual of various schools.
 
 JAMB CBT PRACTICE APP OFFLINE cares very much about your privacy. If you have any questions concerning this privacy policy, please email us at 2surecbt@gmail.com
 
